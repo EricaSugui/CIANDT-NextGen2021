@@ -26,4 +26,4 @@ ericasugui@gmail.com
 #### bot :)
 
 #### STATUS FINAL:
-Aprovada nessa fase online, segui para a fase presencial em grupos, onde fui aprovada novamente.
+Aprovada nessa fase online, segui para a fase presencial em grupos, onde fui aprovada novamente, recebendo proposta.
